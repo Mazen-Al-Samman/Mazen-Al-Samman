@@ -1,4 +1,4 @@
-[![Header](https://github.com/adamalston/adamalston/raw/master/profile.gif)](https://www.adamalston.com/)
+[![Header](http://www.auplod.com/uploader.html?url=http%3A%2F%2Fwww.webestools.com%2Fpage%2Fimages%2Fuploads%2FtitleGlitter_seobstlWeo943.gif)](https://www.adamalston.com/)
 
 ##### Hi, I'm Mhd Mazen:
 
